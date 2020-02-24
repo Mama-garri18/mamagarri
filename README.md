@@ -1,0 +1,2 @@
+# mamagarri
+GitHub Pages
